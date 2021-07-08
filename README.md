@@ -1,5 +1,3 @@
- 👋 Hi, I’m @UpworkConsultant
- 
 Hello, all the business owners.
 
 First of all, I want to thank you for taking the first step towards your success.
